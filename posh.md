@@ -13,11 +13,13 @@ If I see it happening to someone else, I would support them and encourage them t
 ---
 
 **3. Explainers for different scenarios enacted by actors** 
+
 The video shows various situations to explain what sexual harassment looks like in real life.For example a manager saying that he will give promotion for personal favors, an employee making jokes, or somone giving doing something that is not acceptable. These example scenarios help us understand how small actions can be serious.The main point is that how the other person feels is important.
 
 --- 
 
 **4. How to handle cases of harassment?**
+
 If I face harassment then I would tell the person to stop if I feel safe. I would write what happened and report it to higher authorities. Even also it continues I will follow the company's complaint process.
 If I see someone else facing that kind harassment then I would support them and encourage them to retport it higher authorities.
 
